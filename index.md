@@ -1,2 +1,0 @@
-## Welcome to ximoThorn website
-
